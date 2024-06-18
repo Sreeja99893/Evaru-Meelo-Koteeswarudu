@@ -1,2 +1,2 @@
 # Evaru-Meelo-Koteeswarudu
-Paly Game...! and Enjoy The Game..! Learn From The Game:)
+Paly The Game...! and Enjoy The Game..! Learn From The Game:)
